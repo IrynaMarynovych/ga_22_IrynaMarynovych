@@ -1,1 +1,1 @@
-# ga_22_Iryna_Marynovych
+# qa_22_Iryna_Marynovych
