@@ -1,1 +1,1 @@
-# ga_22_IrynaMarynovych
+# ga_22_Iryna_Marynovych
